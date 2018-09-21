@@ -1,3 +1,0 @@
-Calabrio
-CWT
-Aston Technologies
